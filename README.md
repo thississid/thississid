@@ -1,5 +1,5 @@
 # Siddartha Yadav ⚡ 
-> Ex‑AI Engineer @ Hexagon R&D India. I don’t follow trends—I forge them.
+> Ex‑AI  @ Hexagon R&D India. I don’t follow trends—I forge them.
 
 **Hyderabad, India** — powering the real world with predictive AI, real-time systems, and scalable web architecture. No fluff—just impact.
 
